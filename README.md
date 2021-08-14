@@ -1,0 +1,5 @@
+-  Hi , I am known as @d0ghe!
+-  I’m interested in Data Analyse!
+-  I’m currently learning SQL , Excel , HTML , CSS , JavaScript ,  Phyton!
+-  I’m looking to collaborate on diffrent Projects!
+-  How to reach me d0ghe#5442
